@@ -1,5 +1,5 @@
 <p align="center">
-greek/limbus area. im not that intimidating please i make diarrhea jokes at my grown age
+greek/limbus area. public chat off thx
 </p>
 
 <p align="center">
